@@ -1,1 +1,1 @@
-# Flyme-ZTE-Blade-A1
+# Flyme-ZTE-Blade-A1 RUS
